@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Venkat1917
 - 👀 I’m interested in ... learnining new skills
-- 🌱 I’m currently learning ... linex
+- 🌱 I’m currently learning ... linux
 - 💞️ I’m looking to collaborate on ... some new companys
 - 📫 How to reach me ... venkatakrishnakalla70@gmail.com
 - 😄 Pronouns: ...venkat
